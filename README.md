@@ -1,2 +1,0 @@
-# surveybisnis.io
-belajar bisnis
